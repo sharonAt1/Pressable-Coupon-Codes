@@ -1,4 +1,4 @@
-# Pressable Coupon Codes (2025): Unlock Big Savings Today!  
+# Pressable Coupon Codes (2025) - Get Up to 25% OFF  
 ![Pressable](https://github.com/sharonAt1/Pressable-Coupon-Codes/blob/main/Pressable%20Img/img/homepage.png)
 
 When it comes to managed WordPress hosting, **Pressable** is a name you can trust. Backed by **Automattic**, the creators of WordPress, Pressable ensures your website runs smoothly, securely, and lightning-fast. But why stop at great hosting? With **Pressable coupon codes**, you can get all these amazing services at discounted rates.  
