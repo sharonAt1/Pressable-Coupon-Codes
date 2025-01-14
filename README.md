@@ -1,8 +1,9 @@
 # Pressable Coupon Codes (2025): Unlock Big Savings Today!  
+![Pressable](https://github.com/sharonAt1/Pressable-Coupon-Codes/blob/main/Pressable%20Img/img/homepage.png)
 
 When it comes to managed WordPress hosting, **Pressable** is a name you can trust. Backed by **Automattic**, the creators of WordPress, Pressable ensures your website runs smoothly, securely, and lightning-fast. But why stop at great hosting? With **Pressable coupon codes**, you can get all these amazing services at discounted rates.  
 
-Whether you’re a **blogger**, a **small business owner**, or an **entrepreneur**, 2025 brings some incredible deals that are too good to ignore. Let’s dive in and discover **how you can save big on Pressable hosting**!  
+Whether you’re a **blogger**, a **small business owner**, or an **entrepreneur**, 2025 brings some incredible deals that are too good to ignore. Let’s dive in and discover **How you can save big on Pressable hosting**!  
 
 ---
 
@@ -25,14 +26,22 @@ Using **Pressable coupon codes** is as easy as pie. Follow these simple steps:
 1. **Visit the Official Website:**  
    Head over to [Pressable](https://pressable.com).  
 
+![Pressable Homepage](https://github.com/sharonAt1/Pressable-Coupon-Codes/blob/main/Pressable%20Img/img/Pressable.jpg)
+
 2. **Select Your Hosting Plan:**  
    Browse their plans and pick the one that matches your needs.  
+
+![Pressable Pricing Plans](https://github.com/sharonAt1/Pressable-Coupon-Codes/blob/main/Pressable%20Img/img/Pressable%20pricing%20plans.jpg)
 
 3. **Go to Checkout:**  
    Click on your cart and locate the promo code field.  
 
+![Pressable Billing](https://github.com/sharonAt1/Pressable-Coupon-Codes/blob/main/Pressable%20Img/img/Pressable%20select%20plan.jpg)
+
 4. **Enter the Coupon Code:**  
    Apply codes like `'MICHAEL25'` to see instant savings.  
+
+![Pressable Coupon Codes](https://github.com/sharonAt1/Pressable-Coupon-Codes/blob/main/Pressable%20Img/img/Pressable%20coupon%20codes.jpg)
 
 5. **Verify Your Discount:**  
    Make sure the discount reflects on the total amount.  
@@ -41,13 +50,17 @@ Using **Pressable coupon codes** is as easy as pie. Follow these simple steps:
    Pay securely and enjoy your discounted hosting plan!  
 
 7. **Celebrate Savings:**  
-   A few clicks, and you’re on your way to hosting excellence while saving money!  
+   A few clicks, and you’re on your way to hosting excellence while saving money!
+
+![Pressable Explore](https://github.com/sharonAt1/Pressable-Coupon-Codes/blob/main/Pressable%20Img/img/why.png)
 
 ---
 
 ## Pressable Hosting Plans and Pricing  
 
 Pressable offers a variety of hosting plans tailored to different needs:  
+
+![Pressable Plans](https://github.com/sharonAt1/Pressable-Coupon-Codes/blob/main/Pressable%20Img/img/pressable%20plans.jpg)
 
 - **Personal Plan:** Perfect for individual bloggers and personal sites.  
 - **Starter Plan:** Best suited for small businesses launching their online journey.  
@@ -60,6 +73,8 @@ Pressable offers a variety of hosting plans tailored to different needs:
 ## Benefits of Choosing Pressable  
 
 Why choose **Pressable**? Here’s why it stands out:  
+
+![Pressable Plans](https://github.com/sharonAt1/Pressable-Coupon-Codes/blob/main/Pressable%20Img/img/Pressable%20why%20this.jpg)
 
 - **Powered by Automattic:** Backed by WordPress creators for unparalleled performance and integration.  
 - **100% Uptime Guarantee:** Rest easy knowing your site will always be online.  
